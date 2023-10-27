@@ -1,3 +1,3 @@
 # spam-whatsapp
 
-[https://jejakcyber.com](https://jejakcyber.com)
+[wikiessayus.com](https://wikiessayus.com)
